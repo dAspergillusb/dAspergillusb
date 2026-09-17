@@ -130,3 +130,4 @@ This background helps me approach software development across the full applicati
 
 **Email:** dietolife@gmail.com  
 **GitHub:** [@dAspergillusb](https://github.com/dAspergillusb)
+**Telegram:** [dAspergillusb](https://t.me/dAspergillusb)
